@@ -1,1 +1,1 @@
-Training session 01
+Training session 01, 02 and 03.
